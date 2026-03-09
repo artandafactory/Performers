@@ -10,6 +10,9 @@ Ma lui ha rifiutato. Per Itaca. Per un nome che per lui è tutto.
 
 
 ## II. LA TEMPESTA
+
+
+
 Il mare cambia.
 Ulisse sente la tempesta prima ancora di vederla. Una vibrazione nell'aria. Un odore diverso nell'acqua. Il cielo si carica di nuvole nere da ovest. Basse. Gravide.
 Dopo vent'anni di mare sa riconoscere quando Poseidone libera la sua ira. Il Ciclope accecato era suo figlio. Il debito non è stato saldato.
