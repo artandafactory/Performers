@@ -7,6 +7,8 @@ Poi mare. Dolore. Fatica.
 E Calipso. La ninfa dai capelli luminosi che gli ha offerto l'immortalità. Sette anni sulla sua isola. "Resta," l’aveva supplicato. "Sarai immortale come gli dèi."
 Ma lui ha rifiutato. Per Itaca. Per un nome che per lui è tutto.
 
+
+
 ## II. LA TEMPESTA
 Il mare cambia.
 Ulisse sente la tempesta prima ancora di vederla. Una vibrazione nell'aria. Un odore diverso nell'acqua. Il cielo si carica di nuvole nere da ovest. Basse. Gravide.
