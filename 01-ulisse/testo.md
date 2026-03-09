@@ -4,13 +4,11 @@
 Vent'anni di mare incrostati nelle pieghe dei palmi. Vent'anni di guerra conficcati sotto le unghie spezzate.
 Ricorda a malapena il giorno della partenza. Una spilla dorata che chiude la tunica di Penelope. Un ragazzino magro che si stringe alla gamba del padre.
 Poi mare. Dolore. Fatica.
-E Calipso. La ninfa dai capelli luminosi che gli ha offerto l'immortalità. Sette anni sulla sua isola. "Resta," l’aveva supplicato. "Sarai immortale come gli dèi."
+E Calipso. La ninfa dai capelli luminosi che gli ha offerto l'immortalità. Sette anni sulla sua isola. "Resta," l'aveva supplicato. "Sarai immortale come gli Dèi."
 Ma lui ha rifiutato. Per Itaca. Per un nome che per lui è tutto.
 
 
-
 ## II. LA TEMPESTA
-
 
 
 Il mare cambia.
