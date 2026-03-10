@@ -133,7 +133,7 @@ Ma per stasera, viveva.
 
 ## II. LA CASA.
 La casa di Agata non era una vera casa. Era un riparo.
-Un’unica stanza. Muri di pietra scrostati. Tetto che perdeva in tre punti, Virginia vedeva i secchi posizionati sul pavimento per raccogliere l'acqua. Un camino che tirava male, il fumo che ristagnava nell'aria. Un tavolo di legno grezzo. Due sedie spaiate. Un letto stretto nell'angolo, coperto da coperte rattoppate e lise.
+Un’unica stanza. Muri di pietra scrostati. Tetto che perdeva in tre punti, Virginia vedeva i secchi posizionati sul pavimento per raccogliere l'acqua. Un camino che tirava male, il fumo che ristagnava nell'aria. Un tavolo di legno grezzo. Due sedie spaiate. Un letto stretto nell'angolo, con coperte rattoppate e lise.
 Niente quadri. Niente libri. Niente bellezza.Penombra, solitudine.
 Virginia restò sulla soglia. 
 La stanza aveva l'odore dell'acqua. O forse era il suo cappotto ancora umido di fiume.
