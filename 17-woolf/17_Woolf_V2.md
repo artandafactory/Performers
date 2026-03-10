@@ -137,7 +137,7 @@ Un’unica stanza. Muri di pietra scrostati. Tetto che perdeva in tre punti, Vir
 Niente quadri. Niente libri. Niente bellezza.Penombra, solitudine.
 Virginia restò sulla soglia. 
 La stanza aveva l'odore dell'acqua. O forse era il suo cappotto ancora umido di fiume.
-Pensò a Monk's House, le stanze luminose, i libri ovunque, i dipinti di Vanessa alle pareti, il giardino curato. Pensò a Bloomsbury, le conversazioni intellettuali, il tè servito in porcellana, le risate colte.
+Pensò a Monk's House, le stanze luminose, i libri ovunque, i dipinti di Vanessa alle pareti, il giardino curato. Pensò a Bloomsbury, le conversazioni intellettuali, il tè servito in porcellana, le risate cólte.
 Questo era un altro mondo. Un mondo dove la bellezza non arrivava semplicemente perché non c'era tempo per la bellezza. Solo sopravvivenza.
 «Non è molto» disse Agata. Non si scusava. Constatava un fatto.
 «No» disse Virginia. 
@@ -188,7 +188,7 @@ Si fermò. La voce si era incrinata.
 «Perché sono rotta,» disse piano. «Sono rotta da sempre. Da quando ero bambina. E non so come ripararmi. E sono stanca di fingere di non essere rotta.»
 Agata annuì lentamente. «Capisco.»
 «No, non capisci. Tu sei giovane. Tu hai ancora…»
-«Io ho questo “ disse guardandosi attorno” Sono questo, questa catapecchia che cade, io cado fuori e dentro perchè nessuno mi vede, nessuno mi vuole, nessuno si preoccupa di me.Solo mio padre mi toccava,» disse Agata. 
+«Io ho questo “ disse guardandosi attorno” Sono questo, questa catapecchia che cade, io cado fuori e dentro perchè nessuno mi vede, nessuno si preoccupa di me.Solo mio padre mi toccava,» disse Agata. 
 Voce piatta.
 Come aveva detto della madre morta di polmonite. «Dopo che mia madre era morta. Veniva nel mio letto di notte. Lo faceva fino a quando si è buttato nel fiume. Sei mesi di notti. Poi è morto e io per un momento sono stata contenta. Contenta che fosse morto e disperata per essere sola al mondo con la mia miseria e quattro stracci. Cosa dice questo di me?»
 Virginia la guardò. Non sapeva cosa dire. Cosa poteva dire?
